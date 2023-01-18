@@ -1,1 +1,1 @@
-# hanstore domain owned by han contact @catsarang telegram, @bibenandbiu twitter
+# hanstore domain owned by han 
